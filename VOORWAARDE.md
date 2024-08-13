@@ -19,7 +19,7 @@
 
 ## Levering van Foto's:
 
-1. **Verwachte Levertijd**: De foto's zullen binnen twee weken na de shoot worden geleverd of anders een andere termijn dat is afgesproken.
+1. **Verwachte Levertijd**: De foto's zullen binnen vier weken na de fotoshoot/opdracht worden geleverd of anders een andere termijn dat is afgesproken.
 2. **Leveringswijze**: Digitale download.
 
 ## Verantwoordelijkheden van Partijen:
